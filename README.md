@@ -1,4 +1,5 @@
 # wishlist
+# intet af dyr (læder, uld osv.)
 ## Italiensk espresso laver til komfur, noget a la:
 https://www.alessi.com/us_en/product/kitchen/coffee-machines/moka-alessi.html
 ## Jakke størrelse S
