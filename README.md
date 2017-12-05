@@ -1,5 +1,7 @@
 # wishlist
 # intet af dyr (læder, uld osv.)
+## Timex The Fairfield, blå/hvid NATO rem
+https://www.zalando.dk/timex-the-fairfield-kronograf-whiteblue-tx152m00u-k11.html
 ## Italiensk espresso laver til komfur, noget a la:
 https://www.alessi.com/us_en/product/kitchen/coffee-machines/moka-alessi.html
 ## Jakke størrelse S
@@ -11,5 +13,5 @@ http://m2.hm.com/da_dk/productpage.0513699003.html
 ## Underbukser størrelse S
 http://m2.hm.com/da_dk/productpage.0190252014.html
 ## Rejsebog til Sydamerika
-## skjorter størrelse S slim for
-## kvalitetswhiskey (ikke lort som Jack D)
+## Skjorter størrelse S slim for
+## Kvalitetswhiskey (ikke lort som Jack D)
