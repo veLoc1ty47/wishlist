@@ -1,5 +1,5 @@
-# wishlist
-# intet af dyr (læder, uld osv.)
+# Wishlist
+# - Intet af dyr (læder, uld osv.)
 ## Timex The Fairfield, blå/hvid NATO rem
 https://www.zalando.dk/timex-the-fairfield-kronograf-whiteblue-tx152m00u-k11.html
 ## Italiensk espresso laver til komfur, noget a la:
