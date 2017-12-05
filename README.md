@@ -11,3 +11,5 @@ http://m2.hm.com/da_dk/productpage.0513699003.html
 ## Underbukser størrelse S
 http://m2.hm.com/da_dk/productpage.0190252014.html
 ## Rejsebog til Sydamerika
+## skjorter størrelse S slim for
+## kvalitetswhiskey (ikke lort som Jack D)
