@@ -28,6 +28,8 @@ https://m.zalando.dk/burton-menswear-london-maxwell-chelsea-stovletter-black-m08
 https://m.zalando.dk/burton-menswear-london-ankelstovler-grey-m0812k002-c11.html
 ## Mustang støvler, brun, størrelse 41
 https://m.zalando.dk/mustang-snorestovletter-mittelbraun-mu312d01n-o11.html
+## Pier One Weekendtaske Mørkebrun
+https://www.zalando.dk/pier-one-weekendtasker-dark-brown-pi952ha3f-o12.html
 ## Rejsebog til Sydamerika
 ## Skjorter størrelse S, slim fit
 ## Kvalitetswhiskey (ikke lort som Jack D)
