@@ -1,7 +1,8 @@
 # Wishlist
 # - Intet af dyr (læder, uld osv.)
-## Timex The Fairfield, blå/hvid NATO rem
-https://www.zalando.dk/timex-the-fairfield-kronograf-whiteblue-tx152m00u-k11.html
+## Seiko SKA727P1
+https://watchbandsdanmark.dk/collections/ure/products/ur-seiko-ska727p1
+https://www.amazon.co.uk/gp/aw/d/B01BU2XB7A/ref=mp_s_a_1_581?ie=UTF8&qid=1512521303&sr=1-581&refinements=p_n_feature_browse-bin%3A199514031&pi=SL140_CR0,0,140,180&keywords=seiko
 ## Italiensk espresso laver til komfur, noget a la:
 https://www.alessi.com/us_en/product/kitchen/coffee-machines/moka-alessi.html
 ## Jakke størrelse S
