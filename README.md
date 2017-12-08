@@ -8,16 +8,14 @@ https://www.amazon.co.uk/gp/aw/d/B01BU2XB7A/ref=mp_s_a_1_581?ie=UTF8&qid=1512521
 https://watchbandsdanmark.dk/collections/urremme/products/urrem-nato-bond
 ## Italiensk espresso laver til komfur, noget a la:
 https://www.alessi.com/us_en/product/kitchen/coffee-machines/moka-alessi.html
-## Jakke størrelse S
+## Jakke, størrelse S
 https://www.zara.com/share/-c0p4859517.html?utm_campaign=productShare&utm_medium=mobile_sharing_iOS&utm_source=red_social_movil&utm_term=&utm_content=08178301-I2017
 ## Chinos grå, størrelse 38
 https://www.zara.com/share/-c0p5152516.html?utm_campaign=productShare&utm_medium=mobile_sharing_iOS&utm_source=red_social_movil&utm_term=&utm_content=06786402-I2017
-## T-shirts størrelse S
+## T-shirts, størrelse S
 http://m2.hm.com/da_dk/productpage.0513699003.html
-## Underbukser størrelse S
+## Underbukser, størrelse S
 http://m2.hm.com/da_dk/productpage.0190252014.html
-## Esprit Casual Sweater, størrelse S
-https://www.boozt.com/dk/da/esprit-casual/sweaters_15930114/15930116?group=listing&navId=67776&position=1000000
 ## Esprit Casual Sweater, grå, størrelse S
 https://www.boozt.com/dk/da/esprit-casual/sweaters_15930055/15930066?group=listing&navId=67776&position=1000000
 ##  Selected Homme Shddamian LS Roll Neck, mørkegrå, størrelse S
