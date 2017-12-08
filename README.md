@@ -31,6 +31,8 @@ https://www.zalando.dk/pier-one-weekendtasker-dark-brown-pi952ha3f-o12.html
 ## Rejsebog til Sydamerika
 ## Skjorter størrelse S, slim fit
 ## Kvalitetswhiskey (ikke lort som Jack D)
+## B&O Beoplay E8, Charcoal Sand
+https://www.hifiklubben.dk/hovedtelefoner/bo-beoplay-e8--hovedtelefon/
 
 # Følgende er dyre ting til inspiration
 ## Barbour Weir Wax jakke, størrelse S
