@@ -2,6 +2,8 @@
 # - Intet af dyr (læder, uld osv.)
 ## Burton London Maxwell Chelsea Boots, sort, størrelse 41
 https://m.zalando.dk/burton-menswear-london-maxwell-chelsea-stovletter-black-m0812k003-q11.html
+## Selected Homme Shhyard Vintage Indigo Slim ST Pant Noos, størrelse 31
+https://www.boozt.com/dk/da/selected-homme/shhyard-vintage-indigo-slim-st-pant-noos_16728899/16728901?navId=67775&group=listing&position=1000000
 ## Esprit Casual Sweater, grå, størrelse S
 https://www.boozt.com/dk/da/esprit-casual/sweaters_15930055/15930066?group=listing&navId=67776&position=1000000
 ##  Selected Homme Shddamian LS Roll Neck, mørkegrå, størrelse S
