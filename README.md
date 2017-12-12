@@ -14,6 +14,8 @@ http://m2.hm.com/da_dk/productpage.0190252014.html
 https://m.zalando.dk/mustang-snorestovletter-mittelbraun-mu312d01n-o11.html
 ## Pier One Weekendtaske Mørkebrun
 https://www.zalando.dk/pier-one-weekendtasker-dark-brown-pi952ha3f-o12.html
+## Faux suede chester coat, camel, størrelse S (måske M, da anden jakke fra Zara var for lille i S)
+https://www.zara.com/dk/en/faux-suede-chester-coat-p04341332.html?v1=5039006&v2=764502
 ## Rejsebog til Sydamerika
 ## Skjorter størrelse S, slim fit
 ## Kvalitetswhiskey (ikke lort som Jack D)
